@@ -25,9 +25,6 @@ photos in Big Picture's demo*.
 download and/or use any of Felicia's or Michael's work without their explicit
 permission!)
 
-AJ
-aj@lkn.io | @ajlkn
-
 PS: Not sure how to get that contact form working? Give formspree.io a try (it's awesome).
 
 
